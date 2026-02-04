@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Mohit Shaw
-**A passionate Data Scientist || Generative AI Engineer**
+**A passionate Data Scientist || Generative AI Specialist || Databricks Certified**
 
 Email Me 👉 ✉️ **mohitshawwork1998@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 <!---
